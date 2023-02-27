@@ -4,7 +4,3 @@
 - 💞️ I’m an independent and self-motivated student looking for an entry level position in the software company where I can utilize the extensive knowledge I have gained      during my course. I am good at programming and problem solving.
 - 📫 To reach me : thenisha.it20@bitsathy.ac.in
 
-<!---
-THENISHA-S/THENISHA-S is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
