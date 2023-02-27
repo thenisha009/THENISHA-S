@@ -8,7 +8,7 @@
   
   To reach me :
    
-      Mail id: thenisha.it20@bitsathy.ac.in
+      Mail id: thenishasaravanan2002@gmail.com , thenisha.it20@bitsathy.ac.in
       
       LinkedIn: https://www.linkedin.com/in/thenisha-s-431b89223/?originalSubdomain=in
       
